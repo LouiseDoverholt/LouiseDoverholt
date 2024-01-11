@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Louise Doverholt!
+- 👋 Hi, I’m Louise!
 - 👀 I’m interested in finding candidates (yes, I'm one of those darn recruiters).
 - 🏡 I work as a Talent Acquisition Consultant at Home of Recruitment which means the companies I recruit for can vary from time to time. (see current below)
 - 🌱 I’m currently learning how to find and network with people within tech via Github.  
